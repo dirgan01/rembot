@@ -1,2 +1,2 @@
-# rembot
-ya gimana terserah
+# gatau
+ok
